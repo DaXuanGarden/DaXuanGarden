@@ -6,7 +6,7 @@ Hello, welcome to DaXuan's Growth Garden!🌱
 
 🔥Therefore, I greatly look forward to interacting and learning with teachers and classmates, striving to make greater progress together.
 
-😀Feel free to send DaXuan an email at daxuan111000@163.com. Let's share our knowledge, exchange our experiences, and grow together.
+😀Feel free to send Daxuan an email at daxuan111000@163.com. Let's share our knowledge, exchange our experiences, and grow together.
 
 <!---
 DaXuanGarden/DaXuanGarden is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
